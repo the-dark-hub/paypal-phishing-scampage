@@ -2,7 +2,7 @@
 <b>FREE TEST FOR EVERYONE</b>
 
 
-DARK HUB > https://t.me/darkestscripts
+<b>DARK HUB ></b> https://t.me/darkestscripts
 
 
 <img width="926" alt="paypal-jpg" src="https://user-images.githubusercontent.com/118540164/206290167-d6ca1402-c817-4e18-9985-06fc640f949e.png">
@@ -27,7 +27,7 @@ MESSAGE > https://t.me/darkestscripts
 
 > AND LOTS MORE
 
-IF YOU NEED THIS
+IF YOU NEED OUR SERVICES
 
 MESSAGE > https://t.me/darkestscripts
 
