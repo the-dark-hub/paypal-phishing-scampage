@@ -1,2 +1,62 @@
 # paypal-phishing-scampage
 FREE TEST FOR EVERYONE
+DARK HUB > https://t.me/darkestscripts
+
+
+<img width="926" alt="paypal-jpg" src="https://user-images.githubusercontent.com/118540164/206290167-d6ca1402-c817-4e18-9985-06fc640f949e.png">
+
+
+PAYPAL LOGIN SCAM PAGE
+
+THIS PAPYAL SCAMPAGE FETFCHES ALL VITICMMS' INFORMATION TO SPAMMER MAIL AND PANEL
+
+
+IF YOU'RE INTERESTED IN MORE SERVICES
+
+MESSAGE > https://t.me/darkestscripts
+
+
+# FEATURES
+> ACCURATE INTERFACE
+
+> ANTIF12 BOT
+
+> EASY MODIFICATION
+
+> AND LOTS MORE
+
+IF YOU NEED THIS
+
+MESSAGE > https://t.me/darkestscripts
+
+
+# USAGE
+> WEB HOSTING PANEL
+
+> SSL
+
+> DOMAIN
+
+> UPLOAD SCRIPT TO PANEL
+
+> SPREAD 
+
+FEEL FREE TO MAKE MORE ENQUIRIES
+
+WE ARE HERE > https://t.me/darkestscripts
+
+
+# DISCLAIMER
+THIS IS JUST FOR EDUCATIONAL PURPOSE. I AM NOT RESPONSIBLE FOR ANY ILLEGAL USE OF THIS TOOL, IF USED WRONGLY.
+
+FOR PRIVATE DEALS > https://t.me/darkestscripts
+
+
+# STACKS
+> HTML
+
+> PHP
+
+> JAVASCRIPT
+
+> CSS
