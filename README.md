@@ -2,7 +2,7 @@
 <b>FREE TEST FOR EVERYONE</b>
 
 
-<b>DARK HUB ></b> https://t.me/darkestscripts
+<b>DARK HUB ></b> https://t.me/webtarus
 
 
 <img width="926" alt="paypal-jpg" src="https://user-images.githubusercontent.com/118540164/206290167-d6ca1402-c817-4e18-9985-06fc640f949e.png">
@@ -15,7 +15,7 @@ THIS PAPYAL SCAMPAGE FETCHES ALL VICTIMS' INFORMATION TO SPAMMER'S MAIL AND HOST
 
 IF YOU'RE INTERESTED IN OUR SERVICES
 
-MESSAGE > https://t.me/darkestscripts
+MESSAGE > https://t.me/webtarus
 
 
 # FEATURES
@@ -29,7 +29,7 @@ MESSAGE > https://t.me/darkestscripts
 
 IF YOU NEED THIS SERVICE
 
-MESSAGE > https://t.me/darkestscripts
+MESSAGE > https://t.me/webtarus
 
 
 # USAGE
@@ -45,13 +45,13 @@ MESSAGE > https://t.me/darkestscripts
 
 FEEL FREE TO MAKE MORE ENQUIRIES
 
-WE ARE HERE > https://t.me/darkestscripts
+WE ARE HERE > https://t.me/webtarus
 
 
 # DISCLAIMER
 THIS IS JUST FOR EDUCATIONAL PURPOSE. I AM NOT RESPONSIBLE FOR ANY ILLEGAL USE OF THIS TOOL, IF USED WRONGLY.
 
-FOR PRIVATE DEALS > https://t.me/darkestscripts
+FOR PRIVATE DEALS > https://t.me/webtarus
 
 
 # STACKS
